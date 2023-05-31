@@ -12,7 +12,7 @@ Whether you're a student, a working professional, or someone who simply wants to
 
 So, whether you're starting a new chapter in your life, or simply looking for ways to improve yourself, "Goal Setting Mastery: A Complete Guide to Achieving Your Dreams" is here to support you along the way. Let's get started!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
