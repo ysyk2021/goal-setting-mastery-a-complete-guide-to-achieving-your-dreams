@@ -1,5 +1,3 @@
-Building Motivation
-=======================================================================================
 
 Motivation is a key factor in achieving your goals. In this chapter, we will explore the principles of effective goal setting that can help you build motivation towards your desired outcomes.
 

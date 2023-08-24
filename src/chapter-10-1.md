@@ -1,5 +1,3 @@
-Sustaining Goal Setting Mastery over the Long-Term
-==============================================================================================
 
 Goal setting mastery is not a one-time achievement but a lifelong practice. To sustain goal setting mastery over the long-term, individuals must develop habits and strategies to maintain focus, motivation, and momentum towards their desired outcomes.
 

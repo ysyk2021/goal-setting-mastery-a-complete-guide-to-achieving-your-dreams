@@ -1,5 +1,3 @@
-Building Resilience
-====================================================================
 
 Building resilience is essential for achieving your goals. In this chapter, we will explore some strategies for building resilience that can help you stay focused and persevere towards your desired outcomes.
 

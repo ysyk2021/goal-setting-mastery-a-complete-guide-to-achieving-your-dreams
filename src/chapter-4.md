@@ -1,5 +1,3 @@
-Chapter 3: Understanding the Principles of Effective Goal Setting
-=================================================================
 
 In this chapter, we will explore the principles of effective goal setting and their impact on personal and professional success.
 

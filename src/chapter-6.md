@@ -1,5 +1,3 @@
-Chapter 5: Creating Action Plans
-================================
 
 Creating an effective action plan is crucial for achieving your goals. In this chapter, we will explore the principles of effective action planning, strategies for creating effective action plans, overcoming procrastination, and building time management skills.
 

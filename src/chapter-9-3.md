@@ -1,5 +1,3 @@
-Building a Support System
-======================================================================================================
 
 Applying goal setting mastery to personal and professional goals requires building a support system that will provide you with the encouragement, accountability, and resources you need to succeed. In this chapter, we will discuss strategies for building a support system that will help you achieve your personal and professional goals.
 

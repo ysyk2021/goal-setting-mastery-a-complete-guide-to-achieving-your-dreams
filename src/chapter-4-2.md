@@ -1,5 +1,3 @@
-Strategies for Understanding the Principles of Effective Goal Setting
-========================================================================================================================================
 
 In this chapter, we will explore strategies for understanding the principles of effective goal setting.
 

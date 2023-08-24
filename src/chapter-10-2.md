@@ -1,5 +1,3 @@
-Strategies for Maintaining Motivation and Inspiration
-=================================================================================================
 
 Maintaining motivation and inspiration is essential for sustaining goal setting mastery over the long-term. Without consistent effort and focus, it's easy to lose sight of your desired outcomes and become discouraged or distracted.
 

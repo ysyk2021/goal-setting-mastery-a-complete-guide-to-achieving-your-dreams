@@ -1,5 +1,3 @@
-Overcoming Fear of Failure
-=========================================================================
 
 Fear of failure can be a major obstacle to achieving your goals. It can prevent you from taking risks, trying new things, and ultimately reaching your full potential. In this chapter, we will discuss how to overcome the fear of failure and stay motivated on your journey towards success.
 

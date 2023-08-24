@@ -1,5 +1,3 @@
-Chapter 8: Applying Goal Setting Mastery to Personal and Professional Goals
-===========================================================================
 
 In this chapter, we will explore how to apply goal setting mastery to personal and professional goals. We will discuss the role of goal setting mastery in achieving success, strategies for applying goal setting mastery to your goals, building a support system, and the impact of goal setting mastery on personal and professional success.
 

@@ -1,4 +1,4 @@
-# Introduction
+
 
 We all have dreams and aspirations we hope to achieve one day. Whether it's starting a business, making a career change, or reaching a personal milestone, our goals are what motivate us to keep going and push ourselves to be better. However, setting and achieving our goals can be a challenging and daunting task, especially if we don't know where to begin or lack the proper guidance and motivation.
 

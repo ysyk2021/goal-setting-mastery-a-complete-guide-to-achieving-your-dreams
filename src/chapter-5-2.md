@@ -1,5 +1,3 @@
-Strategies for Achieving Your Goals
-====================================================================================
 
 Setting goals is an important first step towards achieving your dreams, but without effective strategies, it can be challenging to make progress. In this chapter, we will explore some strategies for achieving your goals.
 

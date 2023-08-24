@@ -1,5 +1,3 @@
-Overcoming Procrastination
-============================================================
 
 In this chapter, we will explore strategies for overcoming procrastination when creating action plans.
 

@@ -1,5 +1,3 @@
-Overcoming Limiting Beliefs About Goal Setting
-===========================================================================================
 
 In this chapter, we will explore strategies for overcoming limiting beliefs about goal setting.
 

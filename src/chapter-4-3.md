@@ -1,5 +1,3 @@
-Identifying SMART Goals
-===========================================================================================
 
 Identifying SMART goals is an essential part of effective goal setting. In this chapter, we will explore what SMART goals are and how to identify them.
 

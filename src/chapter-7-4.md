@@ -1,5 +1,3 @@
-Building Self-Awareness
-======================================================
 
 Measuring progress is an essential part of achieving goals and maintaining momentum towards desired outcomes. By tracking your progress, you can identify areas of success and areas that require improvement, allowing you to make necessary adjustments to stay on track.
 

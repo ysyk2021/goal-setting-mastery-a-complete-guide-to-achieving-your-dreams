@@ -1,5 +1,3 @@
-Chapter 2: Mindset for Goal Setting Mastery
-===========================================
 
 Developing a Growth Mindset
 ---------------------------

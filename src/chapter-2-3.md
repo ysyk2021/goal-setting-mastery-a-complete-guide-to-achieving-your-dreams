@@ -1,5 +1,3 @@
-The Role of Goal Setting in Personal and Professional Growth
-======================================================================================================
 
 Goal setting is a powerful tool for personal and professional growth. In this chapter, we will explore the role of goal setting in achieving your dreams and becoming a master of goal setting.
 

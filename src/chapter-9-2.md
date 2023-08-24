@@ -1,5 +1,3 @@
-Strategies for Applying Goal Setting Mastery to Your Goals
-=======================================================================================================================================
 
 Applying goal setting mastery to personal and professional goals requires deliberate strategies and consistent effort. In this chapter, we will discuss practical strategies for applying goal setting mastery to your goals and achieving success.
 

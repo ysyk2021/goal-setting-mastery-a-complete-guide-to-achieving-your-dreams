@@ -1,5 +1,3 @@
-Chapter 4: Strategies for Achieving Your Goals
-==============================================
 
 Setting goals is just the first step towards achieving your dreams. To turn your aspirations into reality, you must develop effective strategies for achieving your goals. In this chapter, we will explore the importance of developing strategies and some strategies for achieving your goals.
 

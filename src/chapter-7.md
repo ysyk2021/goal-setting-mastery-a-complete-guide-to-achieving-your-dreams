@@ -1,5 +1,3 @@
-Chapter 6: Measuring Progress
-=============================
 
 Measuring progress is a crucial part of achieving your goals. In this chapter, we will explore why measuring progress is important, strategies for measuring progress, overcoming self-doubt, and building self-awareness.
 

@@ -1,5 +1,3 @@
-The Importance of Goal Setting
-============================================
 
 Goal setting is a fundamental practice that can help individuals achieve success in all areas of life. Whether it's personal or professional, short-term or long-term, setting goals provides a roadmap for success and helps individuals stay motivated and focused on their desired outcomes.
 

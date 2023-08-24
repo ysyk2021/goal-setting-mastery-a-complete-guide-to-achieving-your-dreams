@@ -1,5 +1,3 @@
-Building a Support System
-=====================================================================
 
 Achieving your goals is not a solo journey. Building a support system can provide you with the encouragement, accountability, and resources you need to sustain goal setting mastery. In this chapter, we will discuss strategies for building a support system that will help you stay on track towards achieving your dreams.
 

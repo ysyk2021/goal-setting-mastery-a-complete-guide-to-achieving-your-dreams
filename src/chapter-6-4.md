@@ -1,5 +1,3 @@
-Building Time Management Skills
-=================================================================
 
 In this chapter, we will explore how to build time management skills when creating action plans.
 

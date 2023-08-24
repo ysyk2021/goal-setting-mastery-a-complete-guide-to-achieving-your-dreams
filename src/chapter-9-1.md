@@ -1,5 +1,3 @@
-The role of goal setting mastery in achieving personal and professional goals
-==========================================================================================================================================================
 
 Goal setting mastery is a powerful tool that can be applied to both personal and professional goals. Whether you are looking to improve your health, advance your career, or achieve a life-long dream, the principles and strategies of goal setting mastery can help you get there.
 

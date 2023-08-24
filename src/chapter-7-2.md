@@ -1,5 +1,3 @@
-Strategies for Measuring Progress
-=================================================================
 
 Measuring progress is an essential part of achieving your goals. By tracking your progress, you can stay motivated and make any necessary adjustments to your action plan. In this chapter, we will explore some strategies for measuring progress.
 

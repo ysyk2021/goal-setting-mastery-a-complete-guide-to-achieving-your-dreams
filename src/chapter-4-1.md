@@ -1,5 +1,3 @@
-The Impact of Effective Goal Setting on Personal and Professional Success
-============================================================================================================================================
 
 In this chapter, we will explore the impact of effective goal setting on personal and professional success.
 

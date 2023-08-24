@@ -1,5 +1,3 @@
-Overcoming Burnout and Exhaustion
-=============================================================================
 
 Achieving your goals requires sustained effort over time, which can sometimes lead to burnout and exhaustion. In this chapter, we will discuss strategies for overcoming burnout and exhaustion to sustain goal setting mastery.
 

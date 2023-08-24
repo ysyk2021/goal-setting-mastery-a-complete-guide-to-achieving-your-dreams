@@ -1,5 +1,3 @@
-Strategies for Building Self-Confidence
-====================================================================================
 
 In this chapter, we will explore strategies for building self-confidence when pursuing goal setting mastery.
 

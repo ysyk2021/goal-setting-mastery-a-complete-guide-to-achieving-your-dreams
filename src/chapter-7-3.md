@@ -1,5 +1,3 @@
-Overcoming Self-Doubt
-=====================================================
 
 Measuring progress is essential for achieving your goals, but self-doubt can often get in the way. In this chapter, we will explore some strategies for overcoming self-doubt and staying motivated towards your desired outcomes.
 

@@ -1,5 +1,3 @@
-The Power of Positive Thinking
-===========================================================================
 
 In this chapter, we will explore the power of positive thinking and its impact on achieving goal setting mastery.
 

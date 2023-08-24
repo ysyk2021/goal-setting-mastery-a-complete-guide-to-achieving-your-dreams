@@ -1,5 +1,3 @@
-Building Problem-Solving Skills
-==============================================================================
 
 Setting goals is one thing, but achieving them is another. Along the way, you are bound to face challenges and setbacks that can make it difficult to stay on track. In this chapter, we will discuss how to overcome obstacles and build problem-solving skills to keep you moving towards your goals.
 

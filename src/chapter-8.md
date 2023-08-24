@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Challenges and Setbacks
-=============================================
 
 Challenges and setbacks are an inevitable part of any goal-setting journey. They can be discouraging, frustrating, and even lead to feelings of failure. However, by understanding the nature of challenges and setbacks and developing effective strategies for overcoming them, you can persevere towards your desired outcomes.
 

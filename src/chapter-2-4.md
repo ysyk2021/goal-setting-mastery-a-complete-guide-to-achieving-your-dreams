@@ -1,5 +1,3 @@
-How to Embrace Goal Setting Mastery
-=============================================================================
 
 Goal setting mastery is the ability to set, pursue, and achieve your goals with focus, intentionality, and resilience. In this chapter, we will discuss how to define goal setting mastery and embrace it as a key component of achieving your dreams.
 

@@ -1,5 +1,3 @@
-Chapter 1: Defining Goal Setting Mastery
-========================================
 
 Goal setting mastery is the ability to set, pursue, and achieve your goals with focus, intentionality, and resilience. In this chapter, we will define goal setting mastery and explore its history and importance in personal and professional growth. We will also discuss how to embrace goal setting mastery as a key component of achieving your dreams.
 

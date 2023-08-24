@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Goal Setting Mastery
-==========================================
 
 Goal setting mastery is not a one-time achievement, but rather an ongoing process that requires sustained effort and dedication. In order to maintain your progress and continue achieving your goals over the long-term, it's important to develop strategies for sustaining goal setting mastery.
 

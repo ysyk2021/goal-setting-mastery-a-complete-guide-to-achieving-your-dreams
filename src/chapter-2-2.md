@@ -1,5 +1,3 @@
-The History of Goal Setting
-=====================================================================
 
 Goal setting is a practice that has been used by individuals throughout history to achieve personal and professional success. While the specific techniques and strategies for goal setting have evolved over time, the core principles remain the same.
 
