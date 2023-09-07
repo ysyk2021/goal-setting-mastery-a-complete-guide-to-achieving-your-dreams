@@ -10,3 +10,7 @@ Whether you're a student, a working professional, or someone who simply wants to
 So, whether you're starting a new chapter in your life, or simply looking for ways to improve yourself, "Goal Setting Mastery: A Complete Guide to Achieving Your Dreams" is here to support you along the way. Let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
