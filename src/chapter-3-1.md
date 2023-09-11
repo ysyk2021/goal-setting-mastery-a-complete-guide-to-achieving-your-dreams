@@ -1,5 +1,4 @@
-Chapter 6: Developing a Growth Mindset
-======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of a growth mindset and its importance in achieving our goals. We will delve into the benefits of adopting a growth mindset, strategies for developing it, and how to leverage it for success.
 

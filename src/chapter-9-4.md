@@ -1,5 +1,4 @@
-Chapter 9: The Impact of Goal Setting Mastery on Personal and Professional Success
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that mastering the art of goal setting can have on both personal and professional success. We will discuss how effective goal setting strategies can unlock your potential, enhance productivity, and lead to a more fulfilling and rewarding life.
 

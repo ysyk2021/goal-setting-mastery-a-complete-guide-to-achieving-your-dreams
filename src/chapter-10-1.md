@@ -1,5 +1,4 @@
-Chapter 10: Sustaining Goal Setting Mastery Over the Long-Term
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of sustaining goal setting mastery over the long-term. While setting goals is essential, it's equally crucial to establish practices and habits that enable you to maintain and build upon your progress. This chapter will provide strategies and insights on how to sustain your goal setting mastery for ongoing success.
 

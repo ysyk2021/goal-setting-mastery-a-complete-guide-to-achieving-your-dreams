@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Building Self-Confidence
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies that can help you build self-confidence. Self-confidence is an essential attribute that empowers you to overcome challenges, take risks, and pursue your goals with conviction. By implementing these strategies, you can cultivate and strengthen your self-confidence.
 

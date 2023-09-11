@@ -1,5 +1,4 @@
-Chapter 9: Building Resilience
-==============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Resilience is a vital attribute that empowers individuals to bounce back from setbacks, adapt to change, and thrive in the face of adversity. In this chapter, we will explore strategies to help you build resilience and navigate challenges with strength and determination.
 

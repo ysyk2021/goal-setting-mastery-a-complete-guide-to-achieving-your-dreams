@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Fear of Failure
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *In this chapter, we will explore the concept of overcoming the fear of failure. We will delve into the various aspects of this fear, its impact on our goals, and practical strategies to conquer it.*
 

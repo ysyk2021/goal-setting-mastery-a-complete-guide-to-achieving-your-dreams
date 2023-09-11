@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Measuring Progress
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for measuring progress towards your goals. Measuring your progress is essential for staying on track, identifying areas of improvement, and celebrating milestones along the way. By implementing these strategies, you can ensure that you are making tangible and measurable advancements towards your dreams.
 

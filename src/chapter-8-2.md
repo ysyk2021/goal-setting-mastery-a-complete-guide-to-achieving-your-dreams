@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Overcoming Challenges and Setbacks
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *In this chapter, we will explore effective strategies for overcoming challenges and setbacks on the journey towards achieving your goals. We'll discuss practical techniques to help you navigate through adversity, maintain resilience, and stay focused on your path to success.*
 

@@ -1,5 +1,4 @@
-Chapter 5: The Role of Goal Setting Mastery in Achieving Personal and Professional Goals
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role that goal setting mastery plays in achieving personal and professional goals. Whether you aspire to personal growth, career advancement, or a fulfilling life, understanding and harnessing the power of goal setting is crucial.
 

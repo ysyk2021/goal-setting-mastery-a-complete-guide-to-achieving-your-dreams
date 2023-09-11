@@ -1,5 +1,4 @@
-Chapter 10: Building Problem-Solving Skills
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *In this chapter, we will explore the importance of problem-solving skills in achieving your goals. We'll discuss strategies and techniques to enhance your problem-solving abilities, enabling you to overcome obstacles and find effective solutions on your journey towards success.*
 

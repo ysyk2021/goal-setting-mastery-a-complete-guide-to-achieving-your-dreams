@@ -1,5 +1,4 @@
-Chapter 6: Building a Support System
-====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a strong support system is crucial in your journey towards achieving your dreams. This chapter will guide you through the process of creating a network of individuals who can provide guidance, encouragement, and accountability along the way.
 

@@ -1,5 +1,4 @@
-Chapter 10: The Importance of Measuring Progress in Achieving Your Goals
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting goals is just the first step on your journey towards realizing your dreams. To ensure success and maintain motivation, it is crucial to measure your progress along the way. In this chapter, we will explore the significance of measuring progress and provide you with practical strategies to effectively track your advancement towards achieving your goals.
 

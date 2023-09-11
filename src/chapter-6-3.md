@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Procrastination
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Procrastination is a common obstacle on the path to achieving your goals. It can hinder progress, disrupt productivity, and derail your dreams. In this chapter, we will delve into strategies for overcoming procrastination and maximizing your potential for success.
 

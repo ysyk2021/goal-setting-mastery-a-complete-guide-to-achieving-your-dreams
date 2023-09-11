@@ -1,5 +1,4 @@
-Chapter 6: The Power of Positive Thinking
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the incredible power of positive thinking and its impact on achieving your goals. Positive thinking is not just a mindset; it is a transformative tool that can change your outlook, boost your motivation, and propel you towards success.
 

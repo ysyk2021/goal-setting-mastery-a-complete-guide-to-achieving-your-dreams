@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Maintaining Motivation and Inspiration
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies to help you maintain motivation and inspiration on your journey towards achieving your goals. We will discuss techniques to overcome challenges and stay focused, methods to cultivate a positive mindset, and approaches for finding ongoing inspiration.
 

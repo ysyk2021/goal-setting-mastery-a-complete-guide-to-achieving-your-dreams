@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Understanding the Principles of Effective Goal Setting
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies for understanding and applying the principles of effective goal setting. By mastering these strategies, you can enhance your ability to set goals that are aligned with your aspirations and increase your chances of achieving them.
 

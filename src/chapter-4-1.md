@@ -1,5 +1,4 @@
-Chapter 6: The Impact of Effective Goal Setting on Personal and Professional Success
-====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that effective goal setting can have on both personal and professional success. Understanding the power of goal setting and its ability to drive achievement is crucial for anyone striving to reach their full potential. By harnessing the benefits of effective goal setting, you can unlock new levels of success in various areas of your life.
 

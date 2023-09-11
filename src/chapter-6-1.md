@@ -1,5 +1,4 @@
-Chapter 8: Understanding the Principles of Effective Action Planning
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the principles of effective action planning---the process of translating your goals into actionable steps. An effective action plan acts as a roadmap, guiding you towards the achievement of your dreams. By understanding and applying these principles, you can optimize your action planning process and increase your chances of success.
 

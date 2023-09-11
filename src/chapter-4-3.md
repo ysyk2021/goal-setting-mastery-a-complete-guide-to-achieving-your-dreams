@@ -1,5 +1,4 @@
-Chapter 9: Identifying SMART Goals
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of SMART goals---a powerful framework for setting goals that are specific, measurable, attainable, relevant, and time-bound. By understanding and applying the principles of SMART goal setting, you can effectively identify goals that are clear, actionable, and aligned with your aspirations.
 

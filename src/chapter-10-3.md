@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Burnout and Exhaustion
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the challenges of burnout and exhaustion and provide strategies to overcome them. We will discuss the signs and causes of burnout, the negative impact it can have on goal achievement, and practical techniques to prevent and recover from burnout.
 

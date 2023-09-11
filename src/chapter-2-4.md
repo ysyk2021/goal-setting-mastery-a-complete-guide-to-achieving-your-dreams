@@ -1,5 +1,4 @@
-Chapter 10: Embracing Goal Setting Mastery
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies and techniques to embrace goal setting mastery---a mindset and approach that empowers you to effectively set and achieve your goals. By adopting these practices, you can optimize your goal setting process and increase your chances of success.
 

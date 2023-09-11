@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Achieving Your Goals
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies that can help you achieve your goals. Implementing these strategies will enhance your chances of success and provide a clear roadmap towards achieving your dreams.
 

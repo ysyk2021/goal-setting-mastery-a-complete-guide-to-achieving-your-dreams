@@ -1,5 +1,4 @@
-Chapter 7: Overcoming Self-Doubt
-================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the challenges of self-doubt and provide strategies to overcome it. Self-doubt can hinder our progress, undermine our confidence, and prevent us from achieving our goals. By understanding the root causes of self-doubt and implementing effective techniques, we can cultivate a mindset of self-belief and resilience.
 

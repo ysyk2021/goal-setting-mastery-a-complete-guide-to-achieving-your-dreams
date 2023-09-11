@@ -1,5 +1,4 @@
-Chapter 11: Understanding the Nature of Challenges and Setbacks
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *In this chapter, we will delve into the nature of challenges and setbacks on the path to achieving your dreams. By gaining a deeper understanding of their nature, you can better navigate through these obstacles and maintain resilience in pursuing your goals.*
 

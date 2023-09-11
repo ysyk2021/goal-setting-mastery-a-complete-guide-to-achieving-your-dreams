@@ -1,5 +1,4 @@
-Chapter 12: Building Time Management Skills
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building strong time management skills to effectively pursue your goals. Time management is a key aspect of goal setting mastery, as it empowers you to prioritize tasks, allocate resources efficiently, and make progress towards your dreams.
 

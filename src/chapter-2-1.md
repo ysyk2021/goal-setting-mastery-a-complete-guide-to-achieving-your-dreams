@@ -1,5 +1,4 @@
-Chapter 13: What is Goal Setting Mastery?
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of goal setting mastery and its significance in achieving your dreams. Goal setting mastery refers to the skillful and effective practice of setting goals that align with your aspirations, creating a roadmap for success, and consistently making progress towards those goals.
 

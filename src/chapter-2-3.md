@@ -1,5 +1,4 @@
-Chapter 14: The Role of Goal Setting in Personal and Professional Growth
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the instrumental role that goal setting plays in both personal and professional growth. Goal setting serves as a catalyst for progress, enabling individuals to unlock their full potential, pursue their passions, and achieve remarkable growth in various aspects of life.
 

@@ -1,5 +1,4 @@
-Chapter 16: Building Motivation
-===============================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Motivation is the driving force behind our actions and behaviors, propelling us towards achieving our goals. In this chapter, we will explore strategies and techniques to build and sustain motivation on your path to goal achievement.
 

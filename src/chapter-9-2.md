@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Applying Goal Setting Mastery to Your Goals
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for applying the principles of goal setting mastery to your personal and professional aspirations. By implementing these strategies, you can maximize your chances of success and transform your dreams into reality.
 

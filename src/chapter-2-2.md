@@ -1,5 +1,4 @@
-Chapter 15: The History of Goal Setting
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the intriguing history of goal setting. Although the concept of setting goals has been practiced for centuries, the systematic approach and recognition of its power in driving success have evolved over time.
 

@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Creating Effective Action Plans
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore essential strategies for creating effective action plans that will help you achieve your goals. Setting goals is just the first step; creating a well-defined and actionable plan is crucial to turning your dreams into reality. By following these strategies, you can enhance your goal-setting process and increase your chances of success.
 

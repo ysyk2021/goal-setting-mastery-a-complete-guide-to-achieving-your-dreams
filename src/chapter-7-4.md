@@ -1,5 +1,4 @@
-Chapter 5: Building Self-Awareness
-==================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Self-awareness is a fundamental aspect of personal growth and achieving our goals. By developing a deep understanding of ourselves, our strengths, weaknesses, and motivations, we can make informed decisions, build meaningful relationships, and align our goals with our authentic selves. In this chapter, we will explore the significance of self-awareness in goal setting and strategies to enhance it.
 

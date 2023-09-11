@@ -1,5 +1,4 @@
-Chapter 9: Overcoming Limiting Beliefs About Goal Setting
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to achieve our dreams and aspirations, it is crucial to set meaningful goals that align with our values and vision for the future. However, we often encounter limiting beliefs that can hinder our progress and prevent us from reaching our full potential. In this chapter, we will explore common limiting beliefs about goal setting and strategies to overcome them.
 
